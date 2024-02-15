@@ -1,4 +1,4 @@
-![[Pasted image 20240125103845.png]]
+![image](https://github.com/trentleslie/QuetzalsShadow/assets/1095657/c7f40f19-4ac9-48e0-aa71-1cadca57b8fe)
 
 # [Exploring Archetypes Through Characters in a Mysterious Time and Place](https://chat.openai.com/c/afb2defa-b73c-47ed-8ad7-bb9934234fd8)
 
