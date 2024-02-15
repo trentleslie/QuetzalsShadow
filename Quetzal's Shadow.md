@@ -92,7 +92,7 @@
 
 - **The Tragic Hero Archetype**: Drawing from "Oedipus Rex," the portrayal of the city and its society as a tragic hero, with inherent flaws leading to an inevitable downfall.
 
-- **Reverence for Water**: Integrating the 'Blue Mind' concept and pre-Columbian respect for water, highlighting its role in the society's spiritual and daily life, and its eventual misuse.
+- **Reverence for Water**: Integrating the ['Blue Mind'](https://en.wikipedia.org/wiki/Blue_Mind) concept and pre-Columbian respect for water, highlighting its role in the society's spiritual and daily life, and its eventual misuse.
 
 - **Authenticity and Personal Fulfillment**: The importance of staying true to one's values and character for personal happiness and healthy relationships.
 	- Reflecting the concept of 'Quality' from "Zen and the Art of Motorcycle Maintenance" 
