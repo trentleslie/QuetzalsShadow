@@ -1,0 +1,6 @@
+p.18
+We can find awe, then, in eight wonders of life: moral beauty collective effervescence, nature, music, visual design, spirituality and religion, life and death, and epiphany. If you are offended that your favorite form of the sublime did not make this periodic table of awe, the Eight Wonders of Life Club, perhaps you'll find solace in this: our "other" category encompassed 5 percent of the te sponses worldwide. This category included stories about incredible flavors, video games, overwhelming sensations (for example, of color or sound), and first experiences of sex.
+
+p.110-111
+Some one thousand years before the Olympics began, the Ol mecs, Mayans, and Aztecs of Mesoamerica were playing the oldest ball game known - ullamaliztli - on courts throughout Mexico, Guatemala, Belize, and Nicaragua. On the day of the game, priests would consecrate the field with prayers, songs, chanting, and rituals. In the competition, teams of two or three players from neigh boring villages tried to push a ball with their hips and elbows through rings on a narrow court surrounded by paintings of Nahua warriors, monkey gods, and Quetzalcoatl, the feathered serpent god. At the game's conclusion, the villagers would gather for dance, music, song, laughter, and revelry. Cultural forms that ritualize moving in unison weave together many wonders of life.
+
