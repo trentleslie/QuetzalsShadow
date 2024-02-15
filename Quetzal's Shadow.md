@@ -126,7 +126,8 @@
 
 
 
-![[Pasted image 20240215112942.png]]
+![image](https://github.com/trentleslie/QuetzalsShadow/assets/1095657/4fe239ba-620b-402e-b3a5-00031065d70d)
+
 # Some stuff to eventually organize:
 
 https://app.scribbler.so/content/clr6br2dx00005xmcn9r28b8l
